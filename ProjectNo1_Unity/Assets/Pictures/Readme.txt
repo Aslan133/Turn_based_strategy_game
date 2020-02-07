@@ -1,0 +1,1 @@
+Jei su visio kuriu tai saugoti paveikslus 24 bit color
